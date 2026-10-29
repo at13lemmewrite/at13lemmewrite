@@ -20,7 +20,7 @@ I enjoy working at the intersection of **finance, technology, and data analytics
 - **Data Visualization:** Power BI, Microsoft Excel
 - **Business Skills:** Research, Problem-Solving, Strategic Thinking, Team Coordination
 
-## 🚀 Projects
+## 🚀 Maintaining my profession around
 
 I'm building my portfolio around finance, risk analytics, and business intelligence.
 
